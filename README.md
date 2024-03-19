@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... myself 
 - 📫 How to reach me ... You need to first move so I can talk to you
 - 😄 Pronouns: ... Jorimey
-- ⚡ Fun fact: ... I crowded places inshort i hate fake people 
+- ⚡ Fun fact: ... I hate crowded places inshort i hate fake people 
 
 <!---
 Jvrimey/Jvrimey is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
