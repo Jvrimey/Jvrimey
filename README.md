@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jvrimey
 - 👀 I’m interested in ... Historical, Documentary, and Rom-com movies
-- 🌱 I’m currently learning ... ho to communicate my feelings to others so they can't invalidate my feelings towards my actions 
+- 🌱 I’m currently learning ... how to communicate my feelings to others so they can't invalidate my feelings towards my actions 
 - 💞️ I’m looking to collaborate on ... myself 
 - 📫 How to reach me ... You need to first move so I can talk to you
 - 😄 Pronouns: ... Jorimey
